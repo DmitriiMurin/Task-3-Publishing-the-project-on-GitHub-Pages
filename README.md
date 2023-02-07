@@ -10,6 +10,6 @@ Major Igor Grom is the most popular Russian comic book hero, an ordinary policem
 The main strength of the Colossus is the ability to cover the entire body with impenetrable metal, well, you should not forget about physical strength: in its "steel" form, it can lift up to 200 tons.
 ![Colossus](https://u.9111s.ru/uploads/202012/11/5cdf912f888a0310d62bb9c86e5ff547.webp "Colossus")
 
-3. ### **Third it's Cosmo, aka Space Dog Cosmonaut***
+3. ### **Third it's Cosmo, aka Space Dog Cosmonaut**
 Yes, that's right: the good boy who runs the security service of the Oblivion space station is formally Russian.
 ![Cosmo](https://mf.b37mrtl.ru/rbthmedia/images/2022.08/original/62f606bac5ad0f7243032f2d.jpg "Cosmo")
